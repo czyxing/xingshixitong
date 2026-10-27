@@ -1,0 +1,2 @@
+# xingshixitong
+A→A
